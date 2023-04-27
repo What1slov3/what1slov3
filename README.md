@@ -14,9 +14,9 @@
 
 ### Контакты
 
-✈️ Telegram: @what1slov333
+✈️ Telegram: @what1slov333  
 📭 Email: what1slov333@gmail.com
 
-### N.B. Открыт к предложениям по работе
+### N.B. Открыт к предложениям по работе, писать в Telegram
 
 ![](https://komarev.com/ghpvc/?username=what1slov3&color=blueviolet&style=flat-square)
